@@ -1,7 +1,7 @@
 # I’m @Noitcani
 
 
-I created this repo to document my journey...   
+I created this portfolio to document my journey...   
 this road to reinvent myself 
 and to take control over the next phase of my career trajectory. 
   

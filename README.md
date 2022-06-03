@@ -13,7 +13,7 @@ while doing nothing to open doors for myself to be part of it.
 These first steps were driven by neccesity <br> - a growing discomfort of stagnation that has finally compelled me to action.
   
   
-I can't say for sure if I am already too old to succeed in such a drastic vocational change now, 
-but I am definintely too young to not try.
+It is **possible** that I am already too old to succeed in such a drastic vocational change now, 
+but it is **certain** that I am too young to not try.
 
 ## **Let's go.**
